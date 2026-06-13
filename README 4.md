@@ -4,7 +4,7 @@
 **Format:** Paperback (Live on Amazon) | Kindle eBook
 **Platform:** Amazon KDP (Self-Published)
 
-## Overview
+## Overview 
 
 *Overthinking Journal for Women 25–40* is a guided, structured journal designed to help
 women in their 20s and 30s manage racing thoughts, emotional overwhelm, and mental
